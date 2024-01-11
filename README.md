@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **wifibri2@gmail.com**
 
-- ⚡ Fun fact **I thin I'm funny**
+- ⚡ Fun fact **I think I'm funny**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
